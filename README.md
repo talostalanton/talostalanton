@@ -3,7 +3,7 @@
 <p align="center"><a href="https://talostalanton.straw.page">STRAWPAGE</a> <a href="https://germanicsfan9000.atabook.org">ATABOOK</a></p>
 
 ## 1
-Tal, Basch, or whatever pony I am. INTJ sp5w6 514 ILI. Chinese and Filipino. C+H whenever. Yes I kin Switzerland no I don't care about doubles
+Tal, Basch, or whatever pony I am. 17 (07/27). INTJ sp5w6 514 ILI. Chinese and Filipino. C+H whenever. Yes I kin Switzerland no I don't care about doubles
 ## 2
 I'm actually really bad at history and geography as a subject sorry. I like culture and sightseeing the most. Currently interested in both the history and culture of French Polynesia (uncommon choice, I know). I'd be happy to learn any history, please infodump to me about it
 
