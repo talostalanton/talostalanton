@@ -7,7 +7,7 @@ Tal, Basch, or whatever pony I am. 17 (07/27). INTJ sp5w6 514 ILI. Chinese and F
 ## 2
 I'm actually really bad at history and geography as a subject sorry. I like culture and sightseeing the most. Currently interested in both the history and culture of French Polynesia (uncommon choice, I know). I'd be happy to learn any history, please infodump to me about it
 
-mediaslop GO hetalia 2hu fullmetal alchemist soul eater scandinavia and the world. but not countryhumans 🫢
+mediaslop GO hetalia touhou fullmetal alchemist soul eater scandinavia and the world. but not countryhumans 🫢
 
 favoritecharacterslop GO neutrality siblings austria hungary prussia germany seychelles norway romano england china. belarus too sorry
 ## 3
