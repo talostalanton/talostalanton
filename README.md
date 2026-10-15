@@ -11,4 +11,4 @@ mediaslop GO hetalia 2hu fullmetal alchemist soul eater scandinavia and the worl
 
 favoritecharacterslop GO neutrality siblings austria hungary prussia germany seychelles norway romano england china. belarus too sorry
 ## 3
-Basic DNI. I don't like proship. Don't involve me in controversies irrelevant to me. Don't make sexual jokes if you're younger or I don't know you. <15 don't friend. Try to strive for kindness
+Basic DNI. I don't like proship. Don't involve me in controversies irrelevant to me. Don't make sexual jokes if you're under 15 or I don't know you. <15 don't friend. Try to strive for kindness
