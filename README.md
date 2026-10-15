@@ -9,6 +9,6 @@ I'm actually really bad at history and geography as a subject sorry. I like cult
 
 mediaslop GO hetalia 2hu fullmetal alchemist soul eater scandinavia and the world. but not countryhumans 🫢
 
-favoritecharacterslop GO neutrality siblings austria hungary prussia germany seychelles norway romano england china
+favoritecharacterslop GO neutrality siblings austria hungary prussia germany seychelles norway romano england china. belarus too sorry
 ## 3
 Basic DNI. I don't like proship. Don't involve me in controversies irrelevant to me. Don't make sexual jokes if you're younger or I don't know you. <15 don't friend. Try to strive for kindness
